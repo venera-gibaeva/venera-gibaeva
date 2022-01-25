@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @venera-gibaeva
 - 👀 I’m interested in something new
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning in Skillfactory
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me venera1991.2020@gmail.com
 
