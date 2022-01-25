@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @venera-gibaeva
+- 👋 Hi, I’m Венера Степанова
 - 👀 I’m interested in something new
 - 🌱 I’m currently learning in Skillfactory
 - 💞️ I’m looking to collaborate on ...
